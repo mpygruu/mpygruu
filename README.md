@@ -7,4 +7,5 @@
 * ⏳ In future I want to develop mobile and web apps professionally.
 * 🤓 I enjoy mastering the ability to create clean code and software architecture.
 * 🎉 In my free time I enjoy discovering new places, playing electric guitar, swimming, playing video games and more.
+* 🏎 What I'm interested in the most is car racing and motorsport.
 * 🥐 Croissants are the best
